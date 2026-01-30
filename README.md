@@ -23,7 +23,7 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 <details>
 <summary>♡ LINKS ♡</summary>
 <br>
-<a href="https://rentry.co/elysiaeirl" target="_blank">rentry</a>  <a href="https://sberriette.atabook.org/" target="_blank">atabook</a>  <a href="https://pronouns.cc/@cyreneirl" target="_blank">kins + info</a>  <a href="https://pluralkit.xyz/f/kebwxp" target="_blank">pk front</a>
+<a href="https://rentry.co/elysiaeirl" target="_blank">rentry</a>  <a href="https://angelicdelusion.atabook.org/" target="_blank">atabook</a>  <a href="https://pronouns.cc/@cyreneirl" target="_blank">kins + info</a>  <a href="https://pluralkit.xyz/f/kebwxp" target="_blank">pk front</a>
 </details>
 
 <details>
